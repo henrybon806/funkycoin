@@ -1,5 +1,3 @@
-# funkycoin
-
 # 🕺💎 **Funky Coin (FNKY) – The Freshest Coin on Solana!**  
 
 Welcome to **Funky Coin (FNKY)** – the **wildest, grooviest, and funkiest** token on the Solana blockchain. Designed by **Henry Bonomolo**, Funky Coin isn’t just another digital asset; it’s a **movement**. Whether you're here to vibe, invest, or just flex on your friends, FNKY is your key to the **next-gen crypto experience**.  
